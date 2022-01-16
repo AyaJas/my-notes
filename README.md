@@ -11,7 +11,7 @@
 #### I'm the **Co-founder** of an academic team at my department calling (intelligence).  
 
 
-![AYA](C:\Users\ayoos\Downloads\WhatsApp Image 2022-01-16 at 9.04.27 PM.jpeg)
+![AYA](https://scontent.famm10-1.fna.fbcdn.net/v/t39.30808-6/241203255_2995172097407884_3260245768088853669_n.jpg?_nc_cat=110&ccb=1-5&_nc_sid=174925&_nc_eui2=AeEqGWBI2_-z4Z_0ByMq72kCpzLJyd9j7SinMsnJ32PtKApjN6r3NRc9N67uFSnRzv3vcmQmV4AysgBxA3XEe-ao&_nc_ohc=Bhwr6AUTQzMAX-7FheD&_nc_ht=scontent.famm10-1.fna&oh=00_AT_u9jufF6UvAc6X_9zJusl5mJqNDetJuicOc4cLhihs3g&oe=61EA0E0D)
 
 
 # **Summary :**  
