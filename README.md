@@ -11,7 +11,7 @@
 #### I'm the **Co-founder** of an academic team at my department calling (intelligence).  
 
 
-![AYA](https://drive.google.com/file/d/1bwNOgLPew0Fmwyd93wg5ciKwHw6n_khi/view?usp=sharing)
+![AYA](C:\Users\ayoos\Downloads\WhatsApp Image 2022-01-16 at 9.04.27 PM.jpeg)
 
 
 # **Summary :**  
