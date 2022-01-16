@@ -1,7 +1,7 @@
 # my-notes
 
 
-**Ayah Hameedat**  
+# **Ayah Hameedat**  
 
 
 #### I'm Ayah Hameedat, I have 22 years old,  studied computer science at JUST.
@@ -9,6 +9,9 @@
 #### Why **Elon Musk**? because he's working to make our life easier by employing AI and machine learning programming.
 
 #### I'm the **Co-founder** of an academic team at my department calling (intelligence).  
+
+
+![AYA](https://drive.google.com/file/d/1bwNOgLPew0Fmwyd93wg5ciKwHw6n_khi/view?usp=sharing)
 
 
 # **Summary :**  
